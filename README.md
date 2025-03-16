@@ -1,0 +1,1 @@
+# laboratori-sobre-recursos-de-ia-generativa-com-copilot-e-openai
